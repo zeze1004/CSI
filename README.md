@@ -2,6 +2,9 @@ CSI: IT Service Platform for University of Seoul
 
 by GF and ZeZe
 
+
+
+
 거노씨. 아이템은 다르지만 결국 창업동아리 된거 넘 신기하지 않나여?
 
 항상 계획대로 착착 된 적은 없지만
